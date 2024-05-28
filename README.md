@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @JesseLucasCodeForge
+- 👀 I’m interested in: Friday night drinks
+- 🌱 I’m currently learning: How to feel alive
+- 💞️ I’m looking to collaborate on: How to feel
+- 📫 How to reach me: Smoke signals
+- 😄 Pronouns: I can never be him
+- ⚡ Fun fact: I like raccoons
